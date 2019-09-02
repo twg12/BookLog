@@ -1,0 +1,15 @@
+# The Savage God; A study on suicide
+
+Interesting in that it provides that nuances society has held on the issue of suicide. It was only until Christianity recreated suicide into a sin that it became a taboo; before, Christians had embraced the idea of suicide as a form of martyrdom and a way of cleansing their sins to reach heaven. As a result, the idea of suicide as a murder of an individual was announced sacrilege, as the prevent the recurrences of suicidal cults.
+
+During the Grecian Periods, suicide was viewed as rational matter; if on believed life was exceedingly too difficult to recover from and undergo, they were granted the right to kill oneself under the condition they were able to logical explain why death was the logical path. Why should one necessarily live? Of course, there still existed the thought that death was a way in which an individual escaped their responsibility towards the state as a soldier and laborer, but the basic assumption was that death was free from moral restraints. The Stoics in particular emphasized the need of rationality in suicide. To them, death was merely a calculated choice of whether what would benefit the individual more. 
+
+The Romans celebrated the idea of death; death was a method in which one could die with honor. This, when mixed with the Christian history of martyrdom, created the conditions in which cults celebrated the self-death of Christians prevailed. As more and more Christians, in the belief of eternal forgiveness, recklessly paved the way for their death in the name of 'martyrdom', the Church made suicide a sin.
+
+**What is Suicide?** 
+
+Suicide, as argued by Freud, is a fight between one's ego and superego, and a result of melancholy and mourning. Melancholy is a way in which an individual gathers self-guilt on a loss, while mourning prompts an individual to struggle with the ghosts of their loss. As it follows, an individual imposes self-loathing onto oneself by projecting themselves as the individual whom they have lost, and loses the will to live. For example, Plath had projected herself into the ghost of her dead father, increasingly haunted by him until she committed suicide, as a ritual of relief from her ghosts.
+
+Others have argued suicide is a form of protection of an individual against what they conceive is their guilt. Humans learn from, and even before birth on what is negative and positive, and define what is right or wrong. As such, we learn to push out from ourselves anything 'wrong'. Suicide in sense helps an individual self-rationalize by giving them a way to escape from what they perceive they did wrong. In a way, it allows individuals to vicimitize themselves and regain righteousness. 
+
+In this way, suicide allows an individual to save what they believe is more valuable than their life.
